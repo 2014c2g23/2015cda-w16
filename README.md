@@ -1,1 +1,1 @@
-# 2015cda-w16
+# 2015cd_midterm
